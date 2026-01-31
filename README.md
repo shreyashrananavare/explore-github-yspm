@@ -1,3 +1,3 @@
 # explore-github-yspm
 Shreyash Rananavare
-Yashoda Technical campus Satara
+I am Student Of Ytc Satara
